@@ -15,6 +15,6 @@ Machine learning | Python | Computer Vision
 
 
 ## 🐾 Visitors
-![:K3V1991](https://count.getloli.com/get/@:K3V1991?theme=rule34)
+![:probablyanek](https://count.getloli.com/get/@:probablyanek?theme=rule34)
 
 
